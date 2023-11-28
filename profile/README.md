@@ -1,12 +1,12 @@
-# Aleda A.p.s
+# 🌸 Aleda A.p.s
 
-## Cosa facciamo?
+## ❓ Cosa facciamo?
 Aleda è un'associazione dedita alla creazione di uno spazio che stimoli la collettività e che migliori il rapporto genitoriale in modo ludico ed educativo.
 
-## Dove lo facciamo?
+## 🍝 Dove lo facciamo?
 Aleda svolge la propria attività all’interno delle carceri, delle case Mandamentali e dei comuni.
 
-## Come lo facciamo?
+## 💫 Come lo facciamo?
 Attraverso attività Sociali, Olistiche e ludiche l'associazione mira a migliorare lo stato di vita di chi vive lontano dalla realtà esterna.
 
-[sito web](https://associazionealeda.com/)
+[🌐sito web](https://associazionealeda.com/)
